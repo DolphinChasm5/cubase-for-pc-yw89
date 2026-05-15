@@ -1,4 +1,4 @@
-# 
+# new Cubase for PC | Cubase for Windows Extension | mixing + MIDI-editing is the best Cubase for PC | Cubase for Windows extension, featuring mixing and MIDI-editing. Powerful,
 
 
 
